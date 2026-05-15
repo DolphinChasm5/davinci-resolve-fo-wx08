@@ -1,4 +1,4 @@
-# 
+# smart DaVinci Resolve for PC | DaVinci Resolve for Windows Extension | auto-cut + keyframe-animation is the best DaVinci Resolve for PC | DaVinci Resolve for Windows extension,
 
 
 
